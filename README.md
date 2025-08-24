@@ -1,5 +1,5 @@
 # 💫 About Me:
-lowkey data sorcerer, highkey coffee addict ☕ | predicting vibes better than models
+From Data to Decisions | Turning algorithms into impact
 
 
 ## 🌐 Socials:
